@@ -1,2 +1,2 @@
 # Just4Fun
-Personal Use
+Personal Use Only
